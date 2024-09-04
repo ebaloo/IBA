@@ -1,5 +1,4 @@
 # fuck ddu
 
-1 
-* banan 
-* kage
+* din mor er fed  
+* det er din far os
